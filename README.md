@@ -44,7 +44,7 @@
 
 - GitHub: [@Webyss12](https://github.com/Webyss12)
 - Email: quinanolarichitojr@gmail.com
-- LinkedIn: - LinkedIn: [Richito C. Quinanola Jr.](https://www.linkedin.com/in/richito-jr-qui%C3%B1anola-70368232b/?isSelfProfile=true/)
+- LinkedIn: [Richito C. Quiñanola Jr.](https://www.linkedin.com/in/richito-jr-qui%C3%B1anola-70368232b/?isSelfProfile=true/)
 
 ---
 
